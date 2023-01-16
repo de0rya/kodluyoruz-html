@@ -1,2 +1,0 @@
-# kodluyoruz1
- ödevler
